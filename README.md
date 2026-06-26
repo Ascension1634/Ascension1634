@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Ascension1634
-- 👀 I’m interested in IT, Aerospace, Astrology
+- 👀 I’m interested in IT, Aerospace, Astronomy
 - 🌱 I’m currently learning *everything*
 
 <!---
